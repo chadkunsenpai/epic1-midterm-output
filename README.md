@@ -3,7 +3,7 @@
 <p align="center">
 Mandala Art is a magic circle that holds a great deal of symbolism that represents the cosmos or deities in various heavenly worlds. When the Sun, Moon, and the Earth are aligned, and the Sun illuminates more or less than 50% of the Moon and it is know as the Quarter Moon.
   
-This art was made using half-circ les that look like the First and Third Quarter of Moon Phase embedded with an outline color. Believe me or not, it is really made of half-moons. haha 😆
+This art was made using half-circles that look like the First and Third Quarter of Moon Phase embedded with an outline color. Believe me or not, it is really made of half-moons. haha 😆
 </p>
 
 <p align="right"> -Chadmeister </p>
